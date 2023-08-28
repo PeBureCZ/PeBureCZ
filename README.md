@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @PeBureCZ
-  (azaren@seznam.cz)
+  (bures.peter@email.cz)
 
